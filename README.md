@@ -1,4 +1,6 @@
-## RCD MD V 2
+## RCD MD V 2 EXPIRED 
+
+### RCD MD V3 COMING SOON 📍
    <a><img src='https://i.imgur.com/LyHic3i.gif'/></a><a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 <p align="center"> 
 <u>⚡ A simple WhatsApp User Bot Created Rcd Team ⚡</u>
@@ -90,8 +92,15 @@
   </br>
      
 
-## ` Pair with WhatsApp`
-<h2 align="left">  <a href="https://puny-ida-dextefgee-4ce9a2cd.koyeb.app/"><img src="https://play-lh.googleusercontent.com/901aMQFFnVoX2T-YuJmTIwpPve_SUgMv_QSyzMSPtAqt_l0CyXN1DxfD6xXU0r2f9iM=w240-h480-rw" width="90" />
+## PAIR WITH WHATSAPP  1
+<h2 align="left">  <a href="https://rcd-session-id.sliplane.app/"><img src="https://play-lh.googleusercontent.com/901aMQFFnVoX2T-YuJmTIwpPve_SUgMv_QSyzMSPtAqt_l0CyXN1DxfD6xXU0r2f9iM=w240-h480-rw" width="90" />
+</a>
+</h2>
+
+## PAIR WITH WHATSAPP 2
+
+
+<h2 align="left">  <a href="https://rcd-session-id.sliplane.app/"><img src="https://play-lh.googleusercontent.com/901aMQFFnVoX2T-YuJmTIwpPve_SUgMv_QSyzMSPtAqt_l0CyXN1DxfD6xXU0r2f9iM=w240-h480-rw" width="90" />
 </a>
 </h2>
 
